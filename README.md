@@ -1,2 +1,2 @@
 # OliverEatsAnApple
-## Oliver gosta de maças
+## Oliver gosta de maçãs
